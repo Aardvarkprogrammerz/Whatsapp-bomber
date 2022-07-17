@@ -20,4 +20,4 @@ Steps to be followed :
 
 -------------------------------Contact us for support------------------------------
 Email : aardvarkprogrammerz@gmail.com
-Instagram : Link muki deje
+Instagram : https://www.instagram.com/aardvark_programmerz/
